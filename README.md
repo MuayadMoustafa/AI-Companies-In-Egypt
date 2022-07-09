@@ -1,1 +1,0 @@
-# AI-Companies-In-Egypt
